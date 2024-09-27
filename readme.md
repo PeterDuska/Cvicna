@@ -15,5 +15,5 @@ Nas tim tvoria clenovia:
 1. Martin Krivosudsky
 2.
 3.
-4.
+4. Dmytro Moroz
 
