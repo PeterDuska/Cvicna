@@ -13,7 +13,7 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Martin Krivosudsky
-2.
+2. Viera Michaela Blazickova
 3.
 4.
 
