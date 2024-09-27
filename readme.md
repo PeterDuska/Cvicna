@@ -15,5 +15,6 @@ Nas tim tvoria clenovia:
 1. Martin Krivosudsky
 2. Peter Duska
 3. Viera Michaela Blazickova
-4.
+4. Dmytro Moroz
+
 
